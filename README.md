@@ -1,0 +1,2 @@
+# Manodopera
+Ore di manodopera 
